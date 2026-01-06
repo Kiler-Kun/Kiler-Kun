@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kiler-Kun
+- 👋 Hi, I’m @Lord_Pivo
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning mine penis
 - 💞️ I’m looking to collaborate with Vladimir Vladimirovich Putin
