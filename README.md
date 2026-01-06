@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kiler-Kun
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning your penis
+- 🌱 I’m currently learning mine penis
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kirilbodrov019@gmail.com
 - 😄 Pronouns: ...
