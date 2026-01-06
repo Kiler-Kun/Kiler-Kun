@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @Kiler-Kun
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning mine penis
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with Vladimir Vladimirovich Putin
 - 📫 How to reach me kirilbodrov019@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: That I don't have any fun facts
 
 <!---
